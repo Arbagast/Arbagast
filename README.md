@@ -16,3 +16,6 @@
 
 [Часов обучения на 18.06.2024](https://disk.yandex.ru/i/IoKK1SRX3TJGGQ)
 </detalis>
+
+
+[Домашние работы](https://github.com/Arbagast/seal)
