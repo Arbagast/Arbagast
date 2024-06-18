@@ -18,4 +18,4 @@
 </detalis>
 
 
-[Домашние работы](https://github.com/Arbagast/seal)
+[Домашние работы](https://github.com/Arbagast/Homework)
