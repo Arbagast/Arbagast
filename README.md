@@ -18,3 +18,5 @@
 
 [Домашние работы](https://github.com/Arbagast/Homework)
 
+[Тестовые задания](https://github.com/Arbagast/test-tasks/tree/main)
+
