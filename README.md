@@ -18,6 +18,8 @@
 
 [Доработка типовых конфигураций](https://disk.yandex.ru/i/0MA5c67Tp-7KFQ)
 
+[Дополнительные возможности 1С](https://disk.yandex.ru/i/lJTj-lX8JNPdJQ)
+
 [Часов обучения на 18.06.2024](https://disk.yandex.ru/i/IoKK1SRX3TJGGQ)
 
 ### Мои работы
