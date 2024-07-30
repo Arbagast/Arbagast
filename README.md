@@ -10,6 +10,8 @@
 
 [Все cертификаты Нетологии](https://disk.yandex.ru/d/hdAg3D4a2O-FSg)
 
+[Диплом](https://disk.yandex.ru/client/disk/%D0%94%D0%B8%D0%BF%D0%BB%D0%BE%D0%BC)
+
 ### Сертификаты углубленного курса
 
 [Бизнес-процессы и задачи](https://disk.yandex.ru/i/QszYfO9UJ3WLKQ)
