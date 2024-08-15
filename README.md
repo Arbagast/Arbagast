@@ -10,7 +10,7 @@
 
 [Все cертификаты Нетологии](https://disk.yandex.ru/d/hdAg3D4a2O-FSg)
 
-[Диплом](https://disk.yandex.ru/client/disk/%D0%94%D0%B8%D0%BF%D0%BB%D0%BE%D0%BC)
+[Диплом Института](https://disk.yandex.ru/client/disk/%D0%94%D0%B8%D0%BF%D0%BB%D0%BE%D0%BC)
 
 ### Сертификаты углубленного курса
 
@@ -21,6 +21,8 @@
 [Доработка типовых конфигураций](https://disk.yandex.ru/i/0MA5c67Tp-7KFQ)
 
 [Дополнительные возможности 1С](https://disk.yandex.ru/i/lJTj-lX8JNPdJQ)
+
+[Мобильная разработка](https://disk.yandex.ru/i/Jb-qijxf9uoJNw)
 
 [Часов обучения на 18.06.2024](https://disk.yandex.ru/i/IoKK1SRX3TJGGQ)
 
