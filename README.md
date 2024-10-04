@@ -24,8 +24,6 @@
 
 [Мобильная разработка](https://disk.yandex.ru/i/Jb-qijxf9uoJNw)
 
-[Часов обучения на 18.06.2024](https://disk.yandex.ru/i/IoKK1SRX3TJGGQ)
-
 ### Мои работы
 
 [Домашние работы](https://github.com/Arbagast/Homework)
