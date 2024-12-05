@@ -6,7 +6,7 @@
 
 ## Резюме и сертификаты
 
-[Мое резюме](https://disk.yandex.ru/i/yFU9WynP24WZ7A)
+[Мое резюме](https://disk.yandex.ru/i/HgVftcMaanwVhw)
 
 [Все cертификаты Нетологии](https://disk.yandex.ru/d/hdAg3D4a2O-FSg)
 
