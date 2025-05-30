@@ -9,6 +9,7 @@
 [Диплом программиста 1С](https://disk.yandex.ru/client/disk/Дипломы/1С%20программист)
 
 ## Резюме и сертификаты
+[Сертификат 1С профессионал](https://disk.yandex.ru/i/4zS9ivY1CMty6Q)
 
 [Мое резюме](https://disk.yandex.ru/i/3XTAKIEFk2nwwQ)
 
