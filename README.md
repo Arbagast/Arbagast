@@ -11,7 +11,7 @@
 ## Резюме и сертификаты
 [Сертификат 1С профессионал](https://disk.yandex.ru/i/4zS9ivY1CMty6Q)
 
-[Мое резюме](https://disk.yandex.ru/i/3XTAKIEFk2nwwQ)
+[Мое резюме](https://disk.yandex.ru/i/wlnkTO5tmV9m0A)
 
 [Все cертификаты Нетологии](https://disk.yandex.ru/d/hdAg3D4a2O-FSg)
 
